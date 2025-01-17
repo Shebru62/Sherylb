@@ -1,1 +1,1 @@
-i am a former business and semi retired
+I am a former business owner and am now semi retired.
